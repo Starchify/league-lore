@@ -1,0 +1,2 @@
+An ancient species of gigantic sapient scorpions indigenous to the [[Shuriman Continent]]. Brackern were the first to use Earth Elemental Magic, using Geomancy to create their large eco-friendly buildings, called Arcologies.
+The Brackern live in a large group divided into clans, each headed by a group of broodmothers.

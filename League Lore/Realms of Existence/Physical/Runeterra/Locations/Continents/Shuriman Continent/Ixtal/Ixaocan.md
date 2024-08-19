@@ -1,0 +1,1 @@
+A system of arcologies, built around the Cardinal Arcology built by [[Skarner]], Ixaocan is the only city in the Ixtal jungles in which humans still reside.

@@ -1,0 +1,1 @@
+The Physical realm, much like the [[Spirit]] realm, is *technically* a part of the [[Celestial]] realm, though is notable enough to be included separately.

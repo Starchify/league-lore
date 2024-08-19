@@ -1,0 +1,1 @@
+The Spirit realm, much like the [[Physical]] realm, is *technically* a part of the [[Celestial]] realm, though is notable enough to be included separately.
